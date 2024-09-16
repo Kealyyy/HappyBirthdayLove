@@ -2,7 +2,6 @@
 layout: post
 title: I hope you are happy and safe
 subtitle: Bc ur sleep  deprived, jetlagged, and in a hunk of metal in the sky :(
-tags: [safe, miss you, mine, 2024]
 author: Your Boyfriend <3
 ---
 I know that you'll be safe and take care of yourself because you're my tough little girl, but I can't help but worry about you as you're literally traveling across the world right now ugh :(
