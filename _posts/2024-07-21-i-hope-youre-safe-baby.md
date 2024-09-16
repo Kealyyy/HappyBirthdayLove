@@ -2,7 +2,6 @@
 layout: post
 title: Are you safe?
 subtitle: Little over 12 hours of us not talking
-tags: [imy, plane, crash, scared, nervous, 2024]
 author: Your Boyfriend <3
 ---
 
