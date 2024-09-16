@@ -2,7 +2,6 @@
 layout: post
 title: I'm so proud that you're my girlfriend
 subtitle: Beautiful on the outside and the Inside
-tags: [drop Dead gorgeous, beautiful, amazing, 2024]
 author: Your Boyfriend <3
 ---
 
