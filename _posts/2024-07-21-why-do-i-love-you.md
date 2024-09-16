@@ -2,7 +2,6 @@
 layout: post
 title: Why Do I Love You
 subtitle: Just a little reminder because you seem to forget sometimes
-tags: [why, atom and angel, 2024]
 author: Your Boyfriend <3
 ---
 
