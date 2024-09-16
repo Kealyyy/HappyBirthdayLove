@@ -2,7 +2,6 @@
 layout: post
 title: My First Impressions
 subtitle: My thoughts when I first met you
-tags: [first impressions, 2023-2024]
 author: Your Boyfriend <3
 ---
 
