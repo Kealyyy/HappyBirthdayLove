@@ -1,7 +1,7 @@
 ---
 layout: post
 title: I'm so proud that you're my girlfriend
-subtitle: Beautiful on the outside and the Inside
+subtitle: I’m proud to call you mine, always.
 author: Your Boyfriend <3
 ---
 
