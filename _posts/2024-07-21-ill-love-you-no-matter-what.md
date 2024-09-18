@@ -5,12 +5,8 @@ subtitle: Life should be about adventure
 author: Your Boyfriend <3
 ---
 
-There are so many times, now and in the future where we might be tempted to give up, especially when things get hard, and I know you say the attachment issues won't let you leave, but the possibility always exists. 
+Langga, through the ups and downs, I love you forever. Crazy moodswings and everything, I’ll stay. Kahit na grabe ka complicated ang life sometimes, we always make it through because of your understanding heart. You always try your best to be rational when things get tough, and I appreciate that so much.
 
-We will always make decisions together, and communicate with one another and be the best example to our kids as to how a healthy snd loving relationship should be. It will be hard, but as the saying goes... "no pain, no gain".
+Your funny side is another reason why I’ll never let go. Kahit boang ka usahay (HAHA chariz), you always know how to make me smile and laugh, even in the worst moments. You make life light, fun, and exciting. With you, di gyud ko mag-worry.
 
-I want to travel the world with you, visit places and make memories and live together. I know med school is hard now and will only get harder as you progress to more advanced topics, but the reward will be worth it, and you'll be able to help people like you've always wanted, through medicine.
-
-You and I, together can choose however we want our life to be. We can do this even with your inability to be as decisive as you could potentially be LOL, and we can live our life no matter how we might seem to break societal norms. It is my belief and future hope that we both rise and live a life together above the average and mediocre paths of life, while helping others attain their dreams and in effect make the world a better place, and giving our children a happy and loving and blessed childhood.
-
-I want nothing more than to spend the rest of my life with you baby, and i still cannot express how much I love you no matter what happens, or happened. Thank you for choosing to share your life with me. MWAHHH
+Most of all, I’ll stay because you are super kind and love me the way I am. We have our differences, but you always show me how much you care. No matter how crazy or hard it gets, I will never stop loving you. I promise. 
