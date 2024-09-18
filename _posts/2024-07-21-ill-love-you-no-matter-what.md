@@ -1,7 +1,7 @@
 ---
 layout: post
 title: I'll love you and stay through everything <3
-subtitle: Life should be about adventure
+subtitle: A promise to stay with you, no matter what.
 author: Your Boyfriend <3
 ---
 
